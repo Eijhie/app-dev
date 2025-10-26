@@ -4,5 +4,5 @@
 **Genre:** Action, Drama, Mystery
 *Created by:* Sakae Esuno
 
-> "I was practically dead, but you gave me a future. ==Yukki is my hope in life==, but if it won't come true then I will die for Yukki, and even in death I will chase after Yukki."
+> "I was practically dead, but you gave me a future. Yukki is my hope in life, but if it won't come true then I will die for Yukki, and even in death I will chase after Yukki."
 — Yuno Gasai
