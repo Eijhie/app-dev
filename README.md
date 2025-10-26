@@ -1,5 +1,5 @@
 # Mirai Nikki (Future Diary)
-##A dark and emotional anime series filled with intense action, mystery, and psychological horror that explores the extremes of love, fate, and survival.
+## A dark and emotional anime series filled with intense action, mystery, and psychological horror that explores the extremes of love, fate, and survival.
 
 **Genre:** Action, Drama, Mystery
 *Created by:* Sakae Esuno
